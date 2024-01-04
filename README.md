@@ -1,0 +1,1 @@
+# Reklam_harcamalari_modeli
